@@ -1,1 +1,1 @@
-# Personal_and_Academic_Projects
+Projects
