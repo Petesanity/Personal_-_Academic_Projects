@@ -1,1 +1,1 @@
-Projects
+Personal and Academic Projects
